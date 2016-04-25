@@ -1,2 +1,0 @@
-# emre
-www.gozleriminbaskenti.com
